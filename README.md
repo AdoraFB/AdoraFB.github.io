@@ -1,1 +1,1 @@
-# AdoraFB-potencija.github.io
+# AdoraFB.github.io
